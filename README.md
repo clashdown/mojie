@@ -2,11 +2,11 @@
 
 下面是魔戒net官网最新地址：
 
-永久官网：[魔戒.com](https://c.jichangs.com/node1)
+永久官网：[魔戒.com](https://c.jichangs.com/mojie)
 
-地址1：[https://mojie.kim](https://c.jichangs.com/node1)
+地址1：[https://mojie.kim](https://c.jichangs.com/mojie)
 
-地址2：[https://mojie.co](https://c.jichangs.com/node1)
+地址2：[https://mojie.co](https://c.jichangs.com/mojie)
 
 **温馨提示：任何服务均有跑路风险，请自行注意防范！**
 
@@ -34,11 +34,11 @@
 | 3600G流量-不限时间| ¥ 279.00| 一次性  | 支持流媒体播放<br>不限制使用人数<br>不限制到期时间<br>不限制网络速度 |
 | 10T流量-不限时间  | ¥ 688.00| 一次性  | 支持流媒体播放<br>不限制使用人数<br>不限制到期时间<br>不限制网络速度  |
 
-[![魔戒套餐价格](mojie_20240904_162204.png)](https://c.jichangs.com/node1)
+[![魔戒套餐价格](mojie_20240904_162204.png)](https://c.jichangs.com/mojie)
 
 ## 魔戒优惠码
 
-【优惠活动】魔戒net五周年优惠促销中，买 [魔戒](https://c.jichangs.com/node1)送八戒余额，详细优惠信息如下：
+【优惠活动】魔戒net五周年优惠促销中，买 [魔戒](https://c.jichangs.com/mojie)送八戒余额，详细优惠信息如下：
 
 <ul>
 	<li>买魔戒￥69套餐，得流量750G，赠送八戒余额￥17元</li>
